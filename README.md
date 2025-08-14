@@ -1,1 +1,1 @@
-Year 2 student in NTU studying Computer Science
+Year 3 student in NTU studying Computer Science
